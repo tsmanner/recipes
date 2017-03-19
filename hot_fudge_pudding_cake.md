@@ -1,5 +1,5 @@
 # Hot Fudge Pudding Cake
-##Ingredients:
+## Ingredients:
 - 1-1/4 cups granulated sugar, divided
 - 1 cup all-purpose flour
 - 1/2 cup HERSHEY'S Cocoa, divided
